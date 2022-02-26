@@ -1,1 +1,2 @@
-This zip folder contains 3 homeworks and 1 in class exercise of session 2.
+امیرحسین غلامشاهی هستم و یکشنبه 15:45الی18:30 با شما برنامه سازی پیشرفته دارم.
+کد دانشجویی:40012341054117
